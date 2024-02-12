@@ -18,3 +18,6 @@
 <br>
 <br>
 <img src="https://media.discordapp.net/attachments/1083257903617679441/1206369248063262850/11595385_953bd.gif?ex=65dbc1e9&is=65c94ce9&hm=a95bdf95cf8e1eb746327ed588fdcc55ecbf521b90adbb6786a0f7b16aa56a2c&=&width=468&height=468">
+<img src="https://media.discordapp.net/attachments/1083257903617679441/1206434840824516648/eden_million.png?ex=65dbff00&is=65c98a00&hm=ee73a62bc1c8dcbcb522b669db6ffef1d30ac78fa8cb35517f6c8ea00877775f&=&format=webp&quality=lossless&width=527&height=468">
+<br>
+<img src="https://picasion.com/gl/92/ihQi.gif">
