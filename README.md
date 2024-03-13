@@ -12,5 +12,7 @@ hi pls call me mie
   i love ryker dublin from the hit game 811. i  finished 811 and i Cried. um i also like zeno and shtdn n just stuff like tht Sooo......
   <br>
   oh yeah i am black and like gay or whatever so dont b alarmed if u see me joking ab shit like dat with my buddies (when they're rarely online)!!!! other than thaat pls whisper me or smth i'll try to respond :3
+  <br>
+  you can find me at the signs near the mentally ill (enstars? rhythm game?) area or in hoyoverse area
 <br>
 
