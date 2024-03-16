@@ -14,5 +14,8 @@ hi pls call me mie
   oh yeah i am black and like gay or whatever so dont b alarmed if u see me joking ab shit like dat with my buddies (when they're rarely online)!!!! other than thaat pls whisper me or smth i'll try to respond :3
   <br>
   you can find me at the signs near the mentally ill (enstars? rhythm game?) area or in hoyoverse area
+  <br>
+  <br>
+<b> I LOVEEE SIGNING GUESTBOOKS (and in return, sign mine?) AND WHISPERING PEOPLE!!!!! it is Highly recommended for u to dm me if u jus wanna talk or b friends \(^_^)/! </b>
 <br>
 
