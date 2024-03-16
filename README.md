@@ -13,4 +13,7 @@
   <br> my pony anxiety is gone and now i'm a lil pixel social butterfly... i hide freely which is rare but happens :3 neways!!! thx for reading n checking out my shit lol
   <br> <br>
   find me at the signs under spawn or in the hyv area 
+<br>
+<br>
+03:30 PM[me fr] whispers: hii ur style is rlly beautiful HII WHOEVER THIS WAS I DI(DNT SEE IT TIL I LOGGED IN 2 HOURS LATER BUT THANK YOU IFY OU SEE THIS
 </p>
