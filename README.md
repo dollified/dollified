@@ -1,19 +1,15 @@
 <p align="center"> 
-<img src="https://i.pinimg.com/originals/a9/c3/55/a9c3555adefd4d4b087b69bc831fde7e.gif">
+<img src="https://64.media.tumblr.com/910974a58ad6ac655f3249fe05540544/ffe75d9ac906f7c6-c7/s250x400/18af410aa294502b1e73422e3b32752c31b18457.gifv">
   <br>
-  <b>mie</b>⠀⠀ <img src="https://caterpie.crd.co/assets/images/gallery08/7ee498fa.gif?v=f7b7a140"> ⠀⠀<i>15</i>
+  <b>mie</b>⠀⠀ <img src="https://caterpie.crd.co/assets/images/gallery29/13c09dff.gif?v=f7b7a140"> ⠀⠀<i>15</i>
   <br>
-  <img src="https://caterpie.crd.co/assets/images/gallery32/b8cf9404.gif?v=f7b7a140">⠀⠀pls sign my guestbook or send me a whisper!⠀⠀<img src="https://caterpie.crd.co/assets/images/gallery32/f5d5b253.gif?v=f7b7a140"> 
+  sign my guestbook if you are cool and awesome <br> also billionth github edit sorry not sorry
   <br>
   <br>
-  <b>ab me pt dump if ur too lazy to read my rentry</b> <img src="https://caterpie.crd.co/assets/images/gallery25/38e83a7a.gif?v=f7b7a140"> 
+  <b>ab me pt dump if ur too lazy to read my rentry</b> 
   <br>
-  hii, i go by jamie but u can either call me tht or by mie :3. i am turning 16 at the end of march.
-  <br><u>811 n shtdn are my hyperfixes</u> and i lovee talking ab it! if i know u well enough im usually sometimes joke mean but it's all love ^_^! <br> c+h appreciated idm if it's silent or not, <b>I MAY SEND U A WHISPER OR LEAVE SMTH IN UR GUESTBOOK!!!!</b>
-  <br> my pony anxiety is gone and now i'm a lil pixel social butterfly... i hide freely which is rare but happens :3 neways!!! thx for reading n checking out my shit lol
+  my full name is jamie u can either call me that or mie <br> i love 811 so much i want to Killmysefl. best $8 of my life <br> c+h loveeddd idc if its silent or not <br> i sign guestbooks and whisper a lottt evn if idk u, feel free to do the same <br> w2i -> offtab or afk. i prob wont see it for a bit
   <br> <br>
   find me at the signs under spawn or in the hyv area 
 <br>
-<br>
-03:30 PM[me fr] whispers: hii ur style is rlly beautiful HII WHOEVER THIS WAS I DI(DNT SEE IT TIL I LOGGED IN 2 HOURS LATER BUT THANK YOU IFY OU SEE THIS
 </p>
