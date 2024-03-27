@@ -7,4 +7,6 @@
 listen to <a href="https://open.spotify.com/track/0K25zmumCzn2kFmh9zcLWy?si=999c82e2271b4ddf">candy by h.o.t</a> it'll change your life
 <br>
 <b><a href="https://arab.org/click-to-help/palestine/">do your daily clicks!</a></b>
+  <br>
+  07:44 PM[me when exos / w2int] sorry but you look like a flea just following him 💔
 </p>
