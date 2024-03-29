@@ -10,5 +10,5 @@ listen to <a href="https://open.spotify.com/track/0K25zmumCzn2kFmh9zcLWy?si=999c
   <br>
   07:44 PM[me when exos / w2int] sorry but you look like a flea just following him 💔
   <br>
-OOMFS MY ACCOUNT HAS BEEN SUSPENDED FOR "INAPPROPRIATE LANGUAGE AND BEHAVIOR" BUT TRUST ME I WILL BE BACK.
+OOMFS MY ACCOUNT HAS BEEN SUSPENDED FOR "INAPPROPRIATE LANGUAGE AND BEHAVIOR" BUT TRUST ME I WILL BE BACK. <br> feel free to add my <a href="https://discordapp.com/users/1074570702692306944">discord</a> oomfs 
 </p>
