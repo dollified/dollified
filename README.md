@@ -9,4 +9,6 @@ listen to <a href="https://open.spotify.com/track/0K25zmumCzn2kFmh9zcLWy?si=999c
 <b><a href="https://arab.org/click-to-help/palestine/">do your daily clicks!</a></b>
   <br>
   07:44 PM[me when exos / w2int] sorry but you look like a flea just following him 💔
+  <br>
+OOMFS MY ACCOUNT HAS BEEN SUSPENDED FOR "INAPPROPRIATE LANGUAGE AND BEHAVIOR" BUT TRUST ME I WILL BE BACK.
 </p>
